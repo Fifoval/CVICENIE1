@@ -15,5 +15,5 @@ Nas tim tvoria clenovia:
 1. Adam Škoruba
 2. Filip Valíček
 3. Aliaksei Yesipovich
-4.
+4. Matej Vereš
 
