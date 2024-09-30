@@ -13,7 +13,7 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Adam Škoruba
-2.
+2. Filip Valíček
 3. Aliaksei Yesipovich
 4.
 
