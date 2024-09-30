@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1. Adam Škoruba
 2.
-3.
+3. Aliakse Yesipovich
 4.
 
